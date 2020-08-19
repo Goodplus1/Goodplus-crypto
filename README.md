@@ -1,2 +1,2 @@
 # Goodplus-crypto
-Here is a world of cryto, very oceanic cryto home
+Here is a world of crypto, very oceanic crypto home
